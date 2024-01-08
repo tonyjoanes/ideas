@@ -1,0 +1,1 @@
+What problems do I have myself or understand well myself.
